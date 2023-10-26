@@ -8,3 +8,7 @@
 ### voce pode entrar em contato comigo 📧
 
 kaio.joay@escola.pr.gov.br
+
+
+
+![](https://media.tenor.com/_RxuKtokbKIAAAAC/okay-ok.gif)
